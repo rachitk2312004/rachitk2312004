@@ -64,7 +64,7 @@ I enjoy creating **clean, functional designs** and love **collaborating on proje
 
 ### 🌍 Connect with Me
 📫 Email: [rachitkumar2312004@gmail.com](mailto:rachitkumar2312004@gmail.com)  
-💼 LinkedIn: [linkedin.com/in/rachit-kumar](https://linkedin.com/in/rachit-kumar)  
+💼 LinkedIn: [linkedin.com/in/rachit-kumar](https://www.linkedin.com/in/rachit-kumar-2077b5290/)  
 💻 GitHub: [github.com/rachitk2312004](https://github.com/rachitk2312004)  
 
 ---
